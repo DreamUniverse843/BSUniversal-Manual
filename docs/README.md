@@ -1,1 +1,0 @@
-# BSUniversal Manual.
